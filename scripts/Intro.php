@@ -1,0 +1,4 @@
+<p>In January 2015 a set of unpleasant circumstances lead to my return to Canada after more than a decade abroad.  It also happened to be the worst winter in Halifax's recorded history iirc.  So I ended up stranded in Halifax for 2+ months.
+<p>By April the snows had let up enough to wander back to south shore where I am from ... however it would be mid May before the ice let go enough to go fishing in the creeks.
+<p>My Grandpa was 95 that year, a WWII vet, retired pulpmill manager and fisherman.  His health had him on a very strict diet - his catch phrase was "Taste it ... if it is any good ... I can't have it."
+<p>So I set about teaching myself to cook all the things he liked, all the ways he liked them, without the ingredients he wasn't allowed to have ... namely salt.
